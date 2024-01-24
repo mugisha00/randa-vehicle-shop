@@ -1,0 +1,1 @@
+# randa-vehicle-shop
